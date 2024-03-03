@@ -8,4 +8,4 @@ Feel free to explore my repositories, collaborate on projects, or reach out with
 
 Happy coding!
 
-[Your Name]
+Taruna
